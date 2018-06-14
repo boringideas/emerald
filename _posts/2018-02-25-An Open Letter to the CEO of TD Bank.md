@@ -1,7 +1,7 @@
 ---
 title: A penny for your thoughts... (An Open Letter to the CEO of TD Bank.)
 ---
-Chief Marketing Officer | University Marketing Instructor | Advisor
+
 Dear Mr. Masrani:
 
 You don't know it, but yesterday I gave your bank a penny. And so, today I'd like a few of your thoughts in return.
